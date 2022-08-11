@@ -1,1 +1,1 @@
-Aku mau ubah ini dari main
+ubah dari main
